@@ -1,0 +1,1 @@
+# Curo_de_libreoffice
